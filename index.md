@@ -14,6 +14,14 @@ The challenge for me now is to bridge the gap between the two worlds – capturi
 
 **It's a journey of experimentation, learning, and a whole lot of passion for freezing moments in time.**
 
+![img](chaticky.png)
+
+![img](borce-bylo-moc.png)
+
+![img](chaticky.png)
+
+![img](chaticky.png)
+
 ## Development
 ### Self-taught programmer and full-stack developer
 
