@@ -18,9 +18,15 @@ The challenge for me now is to bridge the gap between the two worlds – capturi
 
 ![img](borce-bylo-moc.png)
 
-![img](chaticky.png)
+![img](workers-hurka.png)
 
-![img](chaticky.png)
+![img](rano-hurka.png)
+
+![img](rasilov-1.png)
+
+![img](rasilov-2.png)
+
+![img](nudes-69.jpg)
 
 ## Development
 ### Self-taught programmer and full-stack developer
